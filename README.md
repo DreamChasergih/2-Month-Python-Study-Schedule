@@ -1,1 +1,0 @@
-# 2-Month-Python-Study-Schedule
